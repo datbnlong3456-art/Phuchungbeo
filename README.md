@@ -1,2 +1,0 @@
-# Phuchungbeo
-Ko cos j
